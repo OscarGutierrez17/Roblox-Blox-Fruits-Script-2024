@@ -1,3 +1,5 @@
+![Preview Image](maxresdefault-min.jpg)
+
 Description
 Roblox Blox Fruits Scripts 2024 Unlock All Features is a powerful script tool that allows players to unlock all fruits, abilities, and features in Roblox Blox Fruits without spending money. It also includes customization options for an enhanced gaming experience.
 
